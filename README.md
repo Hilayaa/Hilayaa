@@ -1,1 +1,1 @@
-https://tenor.com/brpQm.gif
+https://tenor.com/pt-BR/view/bingus-gif-18888188
